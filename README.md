@@ -1,1 +1,1 @@
-[# DeepSynergy_Assesement](https://github.com/Thimmegowdatp/DeepSynergy_Assesement.git)https://github.com/Thimmegowdatp/DeepSynergy_Assesement.git
+https://thimmegowdatp.github.io/DeepSynergy_Assesement/index3.html)https://thimmegowdatp.github.io/DeepSynergy_Assesement/index3.html
